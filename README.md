@@ -1,0 +1,2 @@
+# Gangsta-s-paradise
+lyrics
